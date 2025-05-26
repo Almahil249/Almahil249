@@ -4,7 +4,7 @@
 
 
 ### 💫 About Me:
-I'm an enthusiastic and ambitious junior Computing and AI student @ the Faculty of Computers and Artificial Intelligence - Cairo University
+I'm an enthusiastic and ambitious Sinor Computing and AI student @ the Faculty of Computers and Artificial Intelligence - Cairo University
 ---
 
 
